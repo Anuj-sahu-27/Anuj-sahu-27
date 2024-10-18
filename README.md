@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sahuanuj4455@gmail.com**
 
-- 📄 For a detailed look at my experience and journey, check out my resume. [https://drive.google.com/file/d/1gAUeeXYrcdn3vf1UwPD-aP14bYcS7-SB/view?usp=sharing](https://drive.google.com/file/d/1gAUeeXYrcdn3vf1UwPD-aP14bYcS7-SB/view?usp=sharing)
+- 📄 For a detailed look at my experience and journey, check out my resume. 
 
 - ⚡ Fun fact **I’ve written more lines of code than text messages this year!**
 
